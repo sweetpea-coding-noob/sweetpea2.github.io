@@ -1,2 +1,2 @@
 # sweetpea2.github.io
-introduce yourself
+Introducing myself
